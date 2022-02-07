@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Fishoo9797
-- 👀 I’m interested in cocking
+- 👀 I’m interested in 
 - 🌱 I’m currently learning marketing and E-Business
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
